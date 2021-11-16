@@ -1,0 +1,1 @@
+Harry Potter me deixou meio ansioso e eu fiz um fetch pra saber quando as vendas iam começar hahahahaha
